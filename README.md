@@ -42,8 +42,12 @@ Elton John, Fox Szn, **Her's**, 3Drinks, Jack Stauber, Joe Hisaishi, Khalid, Mic
 # <img width="123" height="35" alt="1000026319" src="https://github.com/user-attachments/assets/79156988-31d1-4f6d-995b-82d557ffb243" />
 If you couldn't tell by my DNI Criteria, I am part of the LGBTQIA+ community! So, here are my flags!
 
-### 1 ::
-
-### 2 ::
-
-### 3 ::
+### 1 :: Genderfluid
+<img width="330" height="198" alt="1000026322" src="https://github.com/user-attachments/assets/a2db642e-9e70-47d5-a6d0-0c0ff92ca224" />
+I'm genderfluid, so personally, I use he/him or she/her pronouns, it just depends on the day! If you want to learn more about my names / pronouns, check out my prns.cc! I do not care which pronouns you use for me, but my name should change depending on the pronouns!
+### 2 :: Lesbian
+<img width="330" height="198" alt="1000026320" src="https://github.com/user-attachments/assets/a999e8f9-7be3-4f6d-8cd8-fa7d5b9b550e" />
+Idk, I kiss girls.
+### 3 :: Bisexual
+<img width="330" height="198" alt="1000026321" src="https://github.com/user-attachments/assets/8f5a0183-4484-4921-9edd-e66dcc090e40" />
+I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** prefrence for girls, like 99.99% girls and 0.01% boys!
