@@ -7,7 +7,7 @@ I'm Maddie / Flynn / Mimix, and this ReadMe is all about **ME**! ![1000026288](h
 
 Sooo, let's start off with the basics! ![1000026289](https://github.com/user-attachments/assets/53b35304-de61-4e09-8d4c-7dd4d5851d46)
 
-![1000026301](https://github.com/user-attachments/assets/6587c52f-b49f-4383-8efe-afda89270a38)
+<img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
 
 # INT Criteria!
 
