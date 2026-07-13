@@ -59,3 +59,7 @@ I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** pref
 
 
 <img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
+
+# <img width="222" height="35" alt="1000026318" src="https://github.com/user-attachments/assets/df81540b-4c8a-460b-b476-4a8b5b40d8ce" />
+
+I do **NOT** really like being covered, I only will **allow** being covered if it's just my body, and not my face! I like seeing my ponies' pretty little faces, so I'd love it if you didn't cover my face, but otherwise, you can cover / cuddle / hug me!!
