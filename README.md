@@ -33,5 +33,4 @@ Elton John, Fox Szn, **Her's**, 3Drinks, Jack Stauber, Joe Hisaishi, Khalid, Mic
 ### Games ::
 **Red Dead Redemption 2**, Zelda, **Splatoon 2-3**, Cat Quest, Tomodachi Life, Mario, Minecraft, Donkey Kong: Bananza, Kirby, Hello Kitty:Island Adventure, **Katamari Damacy**, Pikmin, Story of the Seasons, **Pokémon**, Undertale, Ori:and the Will of the Wisps, and some other niche unknown games that don't need naming! <img width="20" height="20" alt="1000026314" src="https://github.com/user-attachments/assets/5115201f-1fb8-4878-8ce4-a43792c7435d" />
 ### Youtubers ::
-texty
-
+ItalianBach, CaseOh, Drew Gooden, Flamingo, Matt Rose, Danny Gonzales, Layze, Kurtis Conner, Maso Mayo, Mohammed Agbadi, JayMoji, SarrieBearie/Sarrie, PointCrow, Failboat, Jackdaw, RAVON, SugarRushSean, Ahmadeylo, and Chad Chad!
