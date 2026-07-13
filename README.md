@@ -40,4 +40,10 @@ Elton John, Fox Szn, **Her's**, 3Drinks, Jack Stauber, Joe Hisaishi, Khalid, Mic
 
 
 # <img width="123" height="35" alt="1000026319" src="https://github.com/user-attachments/assets/79156988-31d1-4f6d-995b-82d557ffb243" />
-If you couldn't tell by my DNI Criteria, I am part of the LGBTQIA+ community!
+If you couldn't tell by my DNI Criteria, I am part of the LGBTQIA+ community! So, here are my flags!
+
+### 1 ::
+
+### 2 ::
+
+### 3 ::
