@@ -22,13 +22,14 @@ The Coffin of Andey and Leyley fans, Ybc fans, The Freak Circus fans, ***THOSE**
 
 I am open to **all** people interacting with me, but ***ESPECIALLY*** people who are in my fandoms, so, here's my fandom list! <img width="20" height="20" alt="1000026310" src="https://github.com/user-attachments/assets/51574a73-094e-4ff3-9b4f-1c073aed1628" />
 
-### Anime/Manga
+### Anime/Manga ::
 **The Promised Neverland**, My Hero Academia, **Mob Psycho 100**, Assassination Classroom, Oshi No Ko, Beastars, Jojo's Bizarre Adventure, **Sakamoto Days**, Iruma-Kun, **One Punch Man**, Pokémon, Demon Slayer, Saint Young Men, and some others! <img width="20" height="20" alt="1000026312" src="https://github.com/user-attachments/assets/fb15483d-9a31-43ef-a127-e0da188343d7" />
-### Shows/Movies
+### Shows/Movies ::
 textytexty
-### Books
+### Books ::
 textytexty
-### Music Artists
+### Music Artists ::
 textytexty
-## Games
-**Red Dead Redemption 2**, Zelda, **Splatoon 2-3**, Cat Quest, Tomodachi Life, Mario, Minecraft, Donkey Kong: Bananza, Kirby, Hello Kitty:Island Adventure, **Katamari Damacy**, Pikmin, Story of the Seasons, **Pokémon**, Undertale, Ori:and the Will of the Wisps, and some other niche unknown games that don't need naming! 
+### Games ::
+**Red Dead Redemption 2**, Zelda, **Splatoon 2-3**, Cat Quest, Tomodachi Life, Mario, Minecraft, Donkey Kong: Bananza, Kirby, Hello Kitty:Island Adventure, **Katamari Damacy**, Pikmin, Story of the Seasons, **Pokémon**, Undertale, Ori:and the Will of the Wisps, and some other niche unknown games that don't need naming! <img width="20" height="20" alt="1000026314" src="https://github.com/user-attachments/assets/5115201f-1fb8-4878-8ce4-a43792c7435d" />
+
