@@ -60,6 +60,11 @@ I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** pref
 
 <img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
 
+# <img width="177" height="38" alt="1000026327" src="https://github.com/user-attachments/assets/5a28ebc9-39ff-45c2-821b-3e6a5aa65c15" />
+wippp
+
+<img width="1212" height="80" alt="1000026302" src="https://github.com/user-attachments/assets/56ccb2ba-a8e5-4b5a-8381-ec63325303e0" />
+
 # <img width="222" height="35" alt="1000026318" src="https://github.com/user-attachments/assets/df81540b-4c8a-460b-b476-4a8b5b40d8ce" />
 
 I do **NOT** really like being covered, I only will **allow** being covered if it's just my body, and not my face! I like seeing my ponies' pretty little faces, so I'd love it if you didn't cover my face, but otherwise, you can cover / cuddle / hug me!! <img width="20" height="20" alt="1000026324" src="https://github.com/user-attachments/assets/4fc7589e-b950-4e1e-9ffe-f471bb1783ba" />
