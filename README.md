@@ -26,12 +26,12 @@ I am open to **all** people interacting with me, but ***ESPECIALLY*** people who
 **The Promised Neverland**, My Hero Academia, **Mob Psycho 100**, Assassination Classroom, Oshi No Ko, Beastars, Jojo's Bizarre Adventure, **Sakamoto Days**, Iruma-Kun, **One Punch Man**, Pokémon, Demon Slayer, Saint Young Men, and some others! <img width="20" height="20" alt="1000026312" src="https://github.com/user-attachments/assets/fb15483d-9a31-43ef-a127-e0da188343d7" />
 ### Shows/Movies ::
 **Guardians of The Galaxy**, Gravity Falls, ANYTHING Studio Ghibli, **Spider-Noir**, ***SOME*** Marvel, Star Wars, Steven Universe, **The Sheep Detectives**, Poirot, **South Park**, Scott Pilgrim, Coraline, Night at the Museum, Sanrio, **Bob's Burgers**, ect. <img width="20" height="20" alt="1000026315" src="https://github.com/user-attachments/assets/85804bb0-edf7-4fdd-8650-22e25e01ec38" />
-
 ### Books ::
 Animal Farm, **Percy Jackson**, Holes, I don't really read many books besides manga, sorry! <img width="20" height="20" alt="1000026316" src="https://github.com/user-attachments/assets/b69f43a3-abfe-4d08-ac6d-cdef5c83ba81" />
-
 ### Music Artists ::
 Elton John, Fox Szn, **Her's**, 3Drinks, Jack Stauber, Joe Hisaishi, Khalid, Michael Jackson, MOB CHOIR, Hamilton, Pharrell Williams, **Eminem**, The Caretaker, Weezer, Tyler the Creator, The Weeknd, **The Beatles**, Fall Out Boy, Cat Stevens, **YOASOBI**, and Self!
 ### Games ::
 **Red Dead Redemption 2**, Zelda, **Splatoon 2-3**, Cat Quest, Tomodachi Life, Mario, Minecraft, Donkey Kong: Bananza, Kirby, Hello Kitty:Island Adventure, **Katamari Damacy**, Pikmin, Story of the Seasons, **Pokémon**, Undertale, Ori:and the Will of the Wisps, and some other niche unknown games that don't need naming! <img width="20" height="20" alt="1000026314" src="https://github.com/user-attachments/assets/5115201f-1fb8-4878-8ce4-a43792c7435d" />
+### Youtubers ::
+texty
 
