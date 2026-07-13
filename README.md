@@ -24,10 +24,11 @@ I am open to **all** people interacting with me, but ***ESPECIALLY*** people who
 
 ### Anime/Manga
 **The Promised Neverland**, My Hero Academia, **Mob Psycho 100**, Assassination Classroom, Oshi No Ko, Beastars, Jojo's Bizarre Adventure, **Sakamoto Days**, Iruma-Kun, **One Punch Man**, Pokémon, Demon Slayer, Saint Young Men, and some others! <img width="20" height="20" alt="1000026312" src="https://github.com/user-attachments/assets/fb15483d-9a31-43ef-a127-e0da188343d7" />
-
 ### Shows/Movies
 textytexty
 ### Books
 textytexty
 ### Music Artists
 textytexty
+## Games
+**Red Dead Redemption 2**, Zelda, **Splatoon 2-3**, Cat Quest, Tomodachi Life, Mario, Minecraft, Donkey Kong: Bananza, Kirby, Hello Kitty:Island Adventure, **Katamari Damacy**, Pikmin, Story of the Seasons, **Pokémon**, Undertale, Ori:and the Will of the Wisps, and some other niche unknown games that don't need naming! 
