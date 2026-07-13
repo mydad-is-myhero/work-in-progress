@@ -18,3 +18,4 @@ The Coffin of Andey and Leyley fans, Ybc fans, The Freak Circus fans, Pixeldrink
 
 # <img width="267" height="29" alt="1000026303" src="https://github.com/user-attachments/assets/351665d5-f7fb-4c9c-896c-ddc3718fbf5c" />
 
+I am open to **all** people interacting with me, but ***ESPECIALLY*** people who are in my fandoms, so, here's my fandom list!
