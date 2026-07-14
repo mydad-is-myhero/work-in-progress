@@ -66,17 +66,22 @@ I am a **BISEXUAL LESBIAN** so, I am basically bi with a HIGH HIGH **HIGH** pref
 Reasoning ; Mob has very bas social anxiety imo, just like me! He also seems like very good autstic rep, which very much resonates with me *SO* much <img width="20" height="20" alt="1000026334" src="https://github.com/user-attachments/assets/695e3716-4a74-46a0-a73f-9db320d2a383" />
  ! I also have the same birthday as him so that's another reason why I love him so much !! (#´ω｀#)
 
+<img width="150" height="190" alt="1000026335" src="https://github.com/user-attachments/assets/f42c7c91-c02f-464a-a662-b65c7a3d07eb" />
+
 
 ### #2 . Kaji Joichirou - Sakamoto Days
 
 Reasoning ; Kaji also has very bad social anxiety, and also has very high hearing! I, too, have those . . . (ú-ù) Kaji's deisgn is also very cool to me, so that's why I'm very drawn to him !! <img width="20" height="20" alt="1000026331" src="https://github.com/user-attachments/assets/1d47c30e-324b-45b1-b75a-06d6611a01a3" />
 
+<img width="190" height="150" alt="1000026336" src="https://github.com/user-attachments/assets/7f6c4887-74c2-47ad-a569-46b006fa3d87" />
 
 
 ### #3 . Garou - One punch Man
 
 Reasoning ; Garou, as seen in some of what we get to see in his backstory in the manga, was very much bullied, which is the reasoning for his whole villiany or "monsterization". I am also very much bullied, and also I just really like garou's design and how he is only kind to kids <img width="20" height="20" alt="1000026332" src="https://github.com/user-attachments/assets/f5c86f37-e812-479b-8512-8a3b55e56a03" />
  oh and metal bat ofc his beautiful boyfriend <(｀^´)>
+
+<img width="190" height="190" alt="1000026262" src="https://github.com/user-attachments/assets/a2f81e2b-5de3-4f0a-a397-e2fab6118d19" />
 
 
 ### #4 . Toshinori Yagi aka " All Might " - My Hero Academia
@@ -89,6 +94,8 @@ Reasoning ; Me and All Might have a lot in common, like how we're both blonde w/
 
 Reasoning ; Emma is a very kind and caring person, and always trying to put others first before her ! I resonate with that deeply, since I'm a people pleaser, and am always trying to make people happy <img width="20" height="20" alt="1000026333" src="https://github.com/user-attachments/assets/7416f24d-c335-47f8-95ef-b6ff6979859e" />
  and also she's like super awesome or wtv it's not even that interesting... <img width="20" height="20" alt="1000026329" src="https://github.com/user-attachments/assets/4520a7aa-c19a-4108-8dc6-7bce1cff5d7f" />
+
+<img width="190" height="190" alt="1000026337" src="https://github.com/user-attachments/assets/176d1a60-7b50-42b0-a7ca-e3279a2d3b2f" />
 
 
 
